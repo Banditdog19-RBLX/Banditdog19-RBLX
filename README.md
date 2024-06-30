@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Banditdog19-RBLX
+- 👀 I’m interested in scripting in Lua
+- 🌱 I’m currently learning Lua
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me N/A
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: N/A
